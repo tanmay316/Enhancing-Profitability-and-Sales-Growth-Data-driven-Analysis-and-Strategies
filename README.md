@@ -1,1 +1,1 @@
-# Enhancing-Profitability-and-Sales-Growth-Data-driven-Analysis-and-Strategies
+# Enhancing-Profitability-and-Sales-Growth-Data-driven-Analysis-and-Strategies<img width="731" alt="Screenshot 2024-01-03 163251" src="https://github.com/tanmay316/Enhancing-Profitability-and-Sales-Growth-Data-driven-Analysis-and-Strategies/assets/127765354/e4706f42-bf1d-4d25-9e79-6bc4a7be8671">
